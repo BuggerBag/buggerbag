@@ -10,7 +10,7 @@
 + Crawler programming for Major Blockchain
 + Blockchain Mining Over Web hosting
 + and many more :)
-#### you can contact us at cloud.locki9020@gmail.com
+#### ✉ you can contact us at cloud.locki9020@gmail.com
 
 
 
