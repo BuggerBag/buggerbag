@@ -1,4 +1,4 @@
-# 👑 BuggerBag Team
+# 👑 BuggerBag Team 📦
 <img src="https://splianel.sirv.com/git.PNG" width="722" height="514" alt="" />
 
 
