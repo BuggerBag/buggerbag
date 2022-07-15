@@ -1,4 +1,4 @@
-# 🌠 BuggerBag Team ╮ (. ❛ ᴗ ❛.) ╭ (Mr. talebi repository)
+# 🌠 BuggerBag Team  ╮(. ❛ ᴗ ❛.)╭
 <img src="https://splianel.sirv.com/git.PNG" width="722" height="514" alt="" />
 
 
