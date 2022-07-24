@@ -13,6 +13,6 @@
 #### ✉ you can contact us at: cloud.locki9020@gmail.com (MR. Talebi and MR. Jalin)
 ---------------------------------------
 ##### 🏆 Landlord Dubai company needs graphic designers for Metaverse project (HoneyBees), our group is ready to share your pure ideas with Landlord company.<br> contact us soon. (Many thanks to the sponsors of the project *Epic)
-##### 🎊 Congratulations to the Wolf Farm project team members.
+##### 🎊 Congratulations to the FarmWolf project team members.
 
 
