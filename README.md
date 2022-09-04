@@ -16,4 +16,4 @@
 ##### 24 Jul. 2022-🎊 Congratulations to the FarmWolf project team members. The celebration is tomorrow at 11:00 PM Norwegian time at the main office.
 ##### 04 Sep. 2022-🎊 Congratulations to everyone, Farenbyte Group's contract was successfully obtained. I also congratulate Saina's big family.
 ##### 04 Sep. 2022-📯 Due to the defense of my university thesis, I will not be available to the group members until the end of September. If there is a special task, I am available on Skype from 9 pm to 10 pm Isfahan time.
-
+##### 04 Sep. 2022-🏆 Another good news for all members, three of Nimiq's blockchain friends are planning to join our group.
