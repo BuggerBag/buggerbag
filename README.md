@@ -1,5 +1,5 @@
 #### 👑 BuggerBag Team (Only MRT git account)
-<img src="https://splianel.sirv.com/buggerbag%20team.PNG" alt="BuggerBag team" />
+<img src="https://splianel.sirv.com/buggerbag%20team.PNG" width="641" height="525" alt="" />
 
 #### 👣 We specialize in blockchain testing and blockchain-based security services and computer game development. <br> Our group was formed centrally two years ago and now we offer a variety of services to our customers. <br> If you need an expert team in the field of blockchain or game development, you can contact us. <br> Our team currently has 12 members and the team leaders are currently Patterson, Talebi, Matio and Jalin.
 #### 🎩 Special Ability in:
