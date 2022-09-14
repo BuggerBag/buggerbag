@@ -17,3 +17,4 @@
 ##### 04 Sep. 2022 ⪼📯 ```Due to the defense of my university thesis, I will not be available to the group members until the end of September. If there is a special task, I am available on Skype from 9 pm to 10 pm Isfahan time.```
 ##### 04 Sep. 2022 ⪼🏆 Another good news for all members, three of Nimiq's blockchain friends are planning to join our group.
 ##### 07 Sep. 2022 ⪼📯 ```Note that GitHub has not yet resolved the member access issue. That's why I hide 32 repo.```
+##### 14 Sep. 2022 ⪼📯 ```Norway Releases Source Code for Digital Krone Sandbox, Utilizes Ethereum Technology.``` / Our group recognizes the Norwegian Krone cryptocurrency and will accept it in the near future. 
