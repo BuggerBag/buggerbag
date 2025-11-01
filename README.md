@@ -1,5 +1,5 @@
 
-##### [Mr.Talebi Books & Research] (https://github.com/BuggerBag/Mr.-Talebi-Research-Repository)
+##### [Mr.Talebi Books & Research](https://github.com/BuggerBag/Mr.-Talebi-Research-Repository)
 --------------------------------------
 #### 👑 BuggerBag Team (Only MRT git account)
 <img src="https://splianel.sirv.com/BuggerBagTeam.PNG" alt="BuggerBag info" />
